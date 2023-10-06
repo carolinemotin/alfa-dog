@@ -1,4 +1,4 @@
-# alfa-dog Olá, meu nome é Caroline, tenho 14 anos. Neste site você encontra as raças mais lindas de cachorros, e memes ligados a este assunto!
+# alfa-dog Olá, meu nome é Anonima, tenho anonimo anos. Neste site você encontra as raças mais lindas de cachorros, e memes ligados a este assunto!
 
 
 1 Husky Siberiano
